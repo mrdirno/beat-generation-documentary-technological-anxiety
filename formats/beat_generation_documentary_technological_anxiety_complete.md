@@ -2,7 +2,8 @@
 
 ## **Chapter 1**
 
-The rain on the skylight wasn’t water. It was data. A fine, particulate mist of it, beading and running in rivulets down the angled glass, each droplet a compressed packet of someone’s longing, someone’s purchase, someone’s half-formed thought snatched from the ether and sold for fractions of a cent. Leo watched it from the floor, his back against the cool plaster of the dead fireplace. He was trying to read a book. An actual book, its spine cracked like a dry riverbed, pages the color of weak tea. The words kept sliding away from him, replaced by the phantom buzz of notifications, the ghostly urge to check, to confirm, to *know*.
+Kaufman’s camera whirred, a mechanical cicada in the dim San Francisco loft. It watched Ginsberg’s hands—not the poem, but the tremor as a news bulletin crackled from the Philco. Typewriter keys froze mid-strike. The machine was listening.
+
 
 “You look like a monk,” Mara said from the kitchen nook, the clink of a spoon against ceramic underlining her words. “A very bad monk. One who’s thinking about stealing the collection plate.”
 
